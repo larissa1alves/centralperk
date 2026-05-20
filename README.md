@@ -39,7 +39,7 @@ Dourado envelhecido — luminárias e detalhes metálicos
 🎶 Banquinho de apresentação — palco da Phoebe cantando “Smelly Cat”
 🐱 “Smelly Cat” — música símbolo da personagem Phoebe
 
-Na cafeteria Central Perk de Friends, os cafés normalmente não tinham um cardápio muito detalhado mostrado na série. A maior parte das cenas mostra os personagens apenas pedindo “coffee”.
+⚠️Na cafeteria Central Perk de Friends, os cafés normalmente não tinham um cardápio muito detalhado mostrado na série. A maior parte das cenas mostra os personagens apenas pedindo “coffee”.
 
 Mas existem alguns nomes e bebidas associadas ao café ao longo da série e em materiais oficiais/licenciados:
 
